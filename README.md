@@ -1,5 +1,3 @@
-<img width="735" height="442" alt="john splstoon……_ fly high……" src="https://github.com/user-attachments/assets/a828cbab-ea73-450f-b874-f795c75ac8f0" />
-
 
 <!--
 **Epicsquiddo/Epicsquiddo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
