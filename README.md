@@ -1,6 +1,9 @@
 Hi its me the Jacob
 
-Other than very basic DNI criteria, anyone can interact!! (as long as ur not an asshole)
+Other than very basic DNI criteria, anyone can interact!! 
+
+<img width="300" height="390" alt="человек в наушниках" src="https://github.com/user-attachments/assets/e6b3b96b-b510-4e7f-a7d9-4f038c8a2ea6" />
+
 
 
 <!--
