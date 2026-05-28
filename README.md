@@ -1,7 +1,7 @@
 Hi its me the Jacob
 
+Other than very basic DNI criteria, anyone can interact!! (as long as ur not an asshole)
 
-<img width="447" height="405" alt="chat type 1 if you agree" src="https://github.com/user-attachments/assets/53e8dd9d-7932-42a4-9ac0-d5f95948c962" />
 
 <!--
 **Epicsquiddo/Epicsquiddo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
