@@ -1,6 +1,6 @@
 "𝙸𝚝'𝚜 𝚊𝚕𝚛𝚒𝚐𝚑𝚝, 𝚜𝚒𝚗𝚌𝚎 𝙸 𝚌𝚊𝚗 𝚕𝚒𝚟𝚎 𝚘𝚗..."
 
-<img width="500" height="500" alt="𓈒𓏸 gregor plushie 𓂂" src="https://github.com/user-attachments/assets/75fd9d20-fb67-428a-9791-31e23d7dfeda" />
+<img width="300" height="300" alt="𓈒𓏸 gregor plushie 𓂂" src="https://github.com/user-attachments/assets/75fd9d20-fb67-428a-9791-31e23d7dfeda" />
 
 
 "ɪᴛ'ꜱ ᴀʟʀɪɢʜᴛ."
